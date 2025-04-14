@@ -8,11 +8,10 @@
 🌱 I’m currently looking for an **internship** where I can apply what I’ve learned and continue to grow through hands-on experience.  
 📫 Feel free to reach out via email: **elsiechang0204@gmail.com**
 
-🦜 Fun fact: I have **4 adorable parrots**, and they’re basically part of my brainstorming team 🧠✨  
+🦜 I have **4 adorable parrots**, and they’re basically part of my brainstorming team 🧠✨  
 🎵 In my spare time, I enjoy playing the **piano**, learning **guitar**, and making music—it helps me think creatively even in tech!
 
-🚀 My goal is to become a smart manufacturing engineer who bridges the gap between technology and real-world solutions.  
-Thanks for stopping by! 💡
+🚀 I'm looking for an internship! thanks💡
 
 .
 
